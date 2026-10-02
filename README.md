@@ -1,0 +1,2 @@
+# ONDEVICE
+https://www.google.com/goto?url=CAESbwHrOzAVyJYzFdz1zCxEYbRBjgnE0w_PUhtpJr_g4k_JXaDEEFHqp1prQ8YCuC3FOVa6wlSQGshZxCYyzdVO_2cjtjP9mzlIM3L8W0K805oy284nAhR_p9R203hnHGarxGEkz8_Drxv2CPElUffZFw
